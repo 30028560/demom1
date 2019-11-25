@@ -1,0 +1,1 @@
+#This is first day of class in Toi Ohomai for Level 7
